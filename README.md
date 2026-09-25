@@ -1,4 +1,4 @@
-# Hi, I'm Sri Bhargavi 👋
+# Hi, I'm Sree Bhargavi 👋
 
 🎓 B.Tech CSE Student
 
